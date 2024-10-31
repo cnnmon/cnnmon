@@ -1,6 +1,6 @@
 🌱
 
-__hello world!__ my name is tiffany, otherwise known as cnnmon (pronounced: cinnamon). i code stuff! i also produce art and games when my soul isn't being sucked out by my courseload (go bears).
+__hello world!__ my name is tiffany, otherwise known as cnnmon (pronounced: cinnamon). i code stuff! i also produce art and games when my soul isn't being sucked out by my courseload (gob ears).
 
 i planted a sprout up there. i hope it grows up to be a beautiful flower one day.
 
